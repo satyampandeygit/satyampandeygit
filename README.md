@@ -5,6 +5,4 @@
 - 💬 Ask me about Web Development and Frontend Technologies
 - 📫 How to reach me: Email: psatyam360@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Nothing is better than "Friends"
-- and how you doing?
 
